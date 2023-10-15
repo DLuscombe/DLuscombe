@@ -1,1 +1,1 @@
-Daniel Luscombe, Computer Science student at Northeastern Khoury College!
+Daniel Luscombe, Computer Science student at Northeastern Khoury College! Class of 2027.
